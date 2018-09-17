@@ -1,0 +1,2 @@
+# lolicoin
+cryptocurrency
